@@ -14,6 +14,7 @@
 
 - `1 to 4` send Requests to join Respactive (Comsats Groups - All Campuses )
 - `5 to 8` Making Arractive post (means with stander format) and posting them in all groups [helping material](https://www.facebook.com/comsian.net)
+- `9 to 11` convincing comsian and share info to whats app contacts 
 
 ### **Posts Design by me:**
    ![D1](https://user-images.githubusercontent.com/54352225/132949388-08dc73d3-af19-4825-b88b-8ba2465abb60.jpeg)
