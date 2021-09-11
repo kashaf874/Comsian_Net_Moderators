@@ -10,7 +10,7 @@
     4. Collaboration with Societies and Class Representatives
     5. Posts Designing | Flyers - Annoucements
     
-### **What I Done 1 sep to 10:**
+### **What I Done tii today 1 sep to 10:**
 
 - `1 to 4` send Requests to join Respactive (Comsats Groups - All Campuses )
 - `5 to 8` Making Arractive post (means with stander format) and posting them in all groups [helping material](https://www.facebook.com/comsian.net)
