@@ -24,6 +24,6 @@
    
 ### For Teacher's Day!
 
-[.](file:///D:/downloads/teachers%20day%20(2).png)
+[D1](file:///D:/downloads/teachers%20day%20(2).png)
 
 
