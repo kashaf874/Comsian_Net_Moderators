@@ -24,6 +24,6 @@
    
 ### For Teacher's Day!
 
-[](https://github.com/kashaf874/Comsian_Net_Moderators/blob/a19ccc9fd0eb222bfa03f1d9ac84c21d845e532d/My_Designing_/teachers%20day.png)
+[.](https://github.com/kashaf874/Comsian_Net_Moderators/blob/a19ccc9fd0eb222bfa03f1d9ac84c21d845e532d/My_Designing_/teachers%20day.png)
 
 
